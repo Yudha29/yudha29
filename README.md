@@ -1,1 +1,1 @@
-![alt text](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgj0CyaGXTVlCI846CO2XpdnIZhu8SViYSnBylYSa-Hv-0wr9qUS0yZk0V4x3l5ZFeggvdj_PP192XMzkopfSYLh4q2xkJd9TQKrfQOOSu88uH57VImeQ7AlN4IZEgyPn5N6eLOWtGQp-tbM81MbN-s5pvHsMOgjG3NlBpiA7lY2r9He2xQ4f68juXa/w320-h192/j3somtvj8ff81.png)
+![alt text](https://c.tenor.com/K9-SqJMNjkEAAAAC/emotional-damage.gif)
